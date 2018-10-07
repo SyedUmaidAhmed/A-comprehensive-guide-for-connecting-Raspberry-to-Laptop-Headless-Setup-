@@ -56,3 +56,7 @@ For any queries and problems, you can ask me:
 Syed Umaid Ahmed
 +923323117626
 syedumaidahmed96@gmail.com
+
+for accessing the video tutorial, go to:
+
+https://www.youtube.com/watch?v=E_xFFHvjtW0
